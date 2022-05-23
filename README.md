@@ -1,8 +1,8 @@
 # Halo semua! 
 
-Perkenalkan nama saya **Alfarizi Yanda**.\
+Perkenalkan Kami dari**C22-PS023**.\
 
-Saya seorang **Pelajar** di [Dicoding](https://www.dicoding.com/).\
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [instagram](https://www.instagram.com/frzynda/) ku ya.
+
+
 
