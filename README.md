@@ -1,6 +1,6 @@
 # Halo semua! 
 
-Perkenalkan Kami dari**C22-PS023**.\
+Perkenalkan Kami dari **C22-PS023**.
 
 
 
